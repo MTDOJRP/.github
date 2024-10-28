@@ -1,4 +1,4 @@
-# Welcome to Kelly County Department of Justice Roleplay (KCDOJRP) 🚔🚨
+# Welcome to Kelly County Department of Justice Roleplay (KCDOJRP || KCRP) 🚔🚨
 
 ### 🌐 [Visit Our Website](https://kcdojrp.com)
 
@@ -33,4 +33,4 @@ Need help or have questions? Our friendly community is always here to assist! Jo
 
 ---
 
-Thank you for visiting our GitHub profile! We hope to see you in Kelly County soon!
+Thank you for visiting our GitHub profile! We hope to see you in Kelly County(KCDOJRP) soon!
